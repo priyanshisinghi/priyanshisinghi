@@ -8,4 +8,3 @@ Dehradun.
 - I’m presently learning computer programming 
 - My hobbies are painting , drawig , creating new stuff and travelling filled with adventure 
 
-- Fun fact about me : i am TYPE1 DIABETIC and my laugh is wierdly funny !!
